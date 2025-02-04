@@ -90,3 +90,12 @@ And check this out!!!
 ![](fig/1914-Becker-Nathan-signature.png){alt='Nathans signature 1914'}
 ![](fig/1917-Becker-Nathan-signature.png){alt='Nathans signature 1917'}
 ![](fig/1941-Becker-Nathan-signature.png){alt='Nathans signature 1941'}
+
+
+## Questions
+
+- What happens to Ida Levine after Nathan leaves for California?
+- When did Nathan marry Rose? 
+- What happens to Ida Helen Kronsberg? (George Joseph's first wife)
+- Where and when was George Joseph born? And who are his biological parents? 
+- What is up with Jeanne Sadie Goldfaden's (George's second wife) name changing all over the place? 
