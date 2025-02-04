@@ -75,3 +75,18 @@ My remaining problems are three fold:
 3) Whose son is George Joseph anyway? He's born in 1911/1912 in New York (according to his census records), but his father didn't enter the country until 1910 or 1912 and didn't get married until 1914 (to a woman who was previously married). Is he Ida's son from the previous marriage and Nathan gave told him a bogus name for his mother when he needed something for the marriage record? 
 
 This is definitely more in-depth than my son's 2nd grade teacher expected us to go for a Thanksgiving weekend family history project! :joy:
+
+
+## Later
+
+I found it!!
+
+![](fig/1914-Becker-Nathan-Ida-Levine-marriage-certificate-excerpt.png){alt='Marriage certificate for Nathan and Ida'}
+
+Nathan Becker, parents Frieda and Joseph, married a widow named Ida Levine in 1914 in New York!
+
+And check this out!!!
+
+![](fig/1914-Becker-Nathan-signature.png){alt='Nathans signature 1914'}
+![](fig/1917-Becker-Nathan-signature.png){alt='Nathans signature 1917'}
+![](fig/1941-Becker-Nathan-signature.png){alt='Nathans signature 1941'}
